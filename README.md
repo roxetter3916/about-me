@@ -16,5 +16,12 @@
   * Scream
   * Batman: The Killing Joke
   * The Batman (2022)
+ ---
+ My favorite websites:
 
-  
+[HEEEYYYY](https://heeeeeeeey.com/)
+
+[Doge](https://longdogechallenge.com/)
+
+
+
