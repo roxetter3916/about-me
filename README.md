@@ -2,6 +2,12 @@
 ---
 ### Name: Roxette
 
+### School: HSTAT
+
+### Location: NYC
+
+### Class: SEP10
+
 #### Birthday: _December 30th_
 
 #### My Favorite Songs:
